@@ -1,0 +1,1 @@
+# mpox-induced-wildlife-trade-ban
